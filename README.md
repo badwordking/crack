@@ -1,1 +1,2 @@
 # crack
+Jangan lupa ngopi
